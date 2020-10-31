@@ -1,2 +1,2 @@
-# bhd-gold.github.io
+# 宝亨达黄金
 bhd.gold
